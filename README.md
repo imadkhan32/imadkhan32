@@ -86,7 +86,7 @@ programming, and learning.
 
 -   **GitHub:**
     [@YOUR_GITHUB_USERNAME](https://github.com/YOUR_GITHUB_USERNAME)
--   **LinkedIn:** [Add your LinkedIn profile](https://www.linkedin.com/)
+-   **LinkedIn:** [https://www.linkedin.com/in/imad-ullah-798b70274/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BF6YRyUbrT5CZSqRFB7bSuw%3D%3D)
 -   **Email:** Add your public contact email here
 
 ------------------------------------------------------------------------
